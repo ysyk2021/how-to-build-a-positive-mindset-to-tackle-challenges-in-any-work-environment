@@ -1,5 +1,3 @@
-Measuring the effectiveness of positive mindset strategies
-=====================================================================================
 
 Implementing positive mindset strategies in the workplace is essential for promoting positivity and achieving success. However, it is crucial to measure the effectiveness of these strategies to determine their impact on the organization. In this chapter, we will explore some ways to measure the effectiveness of positive mindset strategies.
 

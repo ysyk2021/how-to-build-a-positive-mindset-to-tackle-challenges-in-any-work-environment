@@ -1,5 +1,3 @@
-Chapter 3: Practicing Gratitude and Mindfulness
-===============================================
 
 Practicing gratitude and mindfulness can help individuals develop a positive mindset and overcome challenges in the workplace. In this chapter, we'll explore ways to cultivate gratitude as a daily habit, develop mindfulness techniques, and incorporate positivity into daily routines.
 

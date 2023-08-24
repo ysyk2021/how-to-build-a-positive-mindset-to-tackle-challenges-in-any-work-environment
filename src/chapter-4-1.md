@@ -1,5 +1,3 @@
-Cultivating Gratitude as a Daily Habit
-=======================================================================================
 
 Practicing gratitude and mindfulness are powerful tools for building a positive mindset in the workplace. In this chapter, we'll explore ways to cultivate gratitude as a daily habit to promote positivity and well-being.
 

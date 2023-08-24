@@ -1,5 +1,3 @@
-Building self-confidence
-========================================================
 
 Building self-confidence is essential for developing resilience and maintaining a positive mindset. In this chapter, we will explore some strategies for building self-confidence in the workplace.
 

@@ -1,5 +1,3 @@
-Overview of Positive Mindset
-==========================================
 
 A positive mindset is an attitude and outlook characterized by optimism, hope, and resilience. It's a perspective that looks for the good in any situation and focuses on solutions rather than problems. A positive mindset can help individuals overcome challenges and achieve success in any work environment.
 

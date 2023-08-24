@@ -1,5 +1,3 @@
-What is a Positive Mindset?
-=================================================================
 
 A positive mindset is an attitude and outlook characterized by optimism, hope, and resilience. It's a perspective that looks for the good in any situation and focuses on solutions rather than problems. In this chapter, we'll discuss what a positive mindset is and how it can benefit individuals in any work environment.
 

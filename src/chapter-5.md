@@ -1,5 +1,3 @@
-Chapter 4: Building Resilience
-==============================
 
 Resilience is the ability to bounce back from challenges and setbacks. Building resilience is an important part of developing a positive mindset in the workplace. In this chapter, we'll explore ways to cultivate a growth mindset towards challenges, encourage learning opportunities, and build self-confidence.
 

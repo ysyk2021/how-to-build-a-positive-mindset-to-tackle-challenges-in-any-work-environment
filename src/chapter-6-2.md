@@ -1,5 +1,3 @@
-Managing stress
-==================================================
 
 Stress is a common experience in the workplace that can negatively impact productivity and well-being. Prioritizing self-care is crucial for managing stress and promoting a positive mindset. In this chapter, we will explore some strategies for managing stress in the workplace.
 

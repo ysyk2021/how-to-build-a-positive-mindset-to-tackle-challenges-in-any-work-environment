@@ -1,5 +1,3 @@
-Addressing Challenges and Setbacks
-=================================================================
 
 Leadership support is essential for building a positive mindset in the workplace. In this chapter, we'll explore ways that leaders can support their team members in addressing challenges and setbacks.
 

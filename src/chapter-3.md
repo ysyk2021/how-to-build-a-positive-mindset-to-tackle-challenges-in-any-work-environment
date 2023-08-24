@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Positive Mindset on Employee Well-Being
-================================================================
 
 Positive mindset has a significant impact on employee well-being in the workplace. In this chapter, we'll explore the benefits of positive mindset for employee well-being, the costs of ignoring positive mindset, and the risks to employee morale, productivity, and retention.
 

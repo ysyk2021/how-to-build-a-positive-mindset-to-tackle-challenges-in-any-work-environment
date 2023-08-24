@@ -1,5 +1,3 @@
-The Benefits of a Positive Mindset
-========================================================================
 
 A positive mindset is a mental attitude that focuses on the good in any situation, and looks for solutions rather than dwelling on problems. In this chapter, we'll discuss the benefits of a positive mindset.
 

@@ -1,5 +1,3 @@
-The risks to employee morale, productivity, and retention
-===========================================================================================================================
 
 Maintaining a positive mindset is not only important for personal well-being but also for the success of an organization. In this chapter, we will explore some of the risks associated with a negative mindset on employee morale, productivity, and retention.
 

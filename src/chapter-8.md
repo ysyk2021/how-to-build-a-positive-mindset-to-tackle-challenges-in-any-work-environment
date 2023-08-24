@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership plays a critical role in creating a positive work environment and supporting the development of a positive mindset among employees. In this chapter, we'll explore the role of leadership in supporting positive mindset, modeling positive behaviors, and addressing challenges and setbacks.
 

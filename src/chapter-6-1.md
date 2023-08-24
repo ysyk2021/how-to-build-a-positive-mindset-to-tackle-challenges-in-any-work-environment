@@ -1,5 +1,3 @@
-Promoting physical and mental health
-=======================================================================
 
 Prioritizing self-care is essential for maintaining a positive mindset and achieving overall well-being. In this chapter, we will explore the importance of physical and mental health in promoting positivity in the workplace.
 

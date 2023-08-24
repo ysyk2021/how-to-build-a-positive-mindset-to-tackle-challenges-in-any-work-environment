@@ -1,5 +1,3 @@
-The costs of ignoring positive mindset
-========================================================================================================
 
 Ignoring the importance of a positive mindset in the workplace can lead to significant costs for both employees and organizations. In this chapter, we will explore some of the costs associated with ignoring positive mindset.
 

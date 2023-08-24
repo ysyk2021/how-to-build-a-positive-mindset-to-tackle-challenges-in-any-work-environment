@@ -1,5 +1,3 @@
-Innovations in building a positive mindset in the workplace
-=========================================================================================
 
 The concept of building a positive mindset in the workplace has gained significant attention and importance in recent years. As organizations continue to focus on employee well-being, productivity, and engagement, creating a positive work environment has become a top priority. However, cultivating a positive mindset is not a one-time task; it requires constant effort and development.
 

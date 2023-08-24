@@ -1,5 +1,3 @@
-Encouraging learning opportunities
-==================================================================
 
 Encouraging learning opportunities is crucial for building resilience and maintaining a positive mindset in the workplace. In this chapter, we will explore some strategies for promoting learning opportunities in the workplace.
 

@@ -1,5 +1,3 @@
-Looking ahead to the future of a workforce with increased positive mindset
-========================================================================================================
 
 As we move towards a more dynamic and complex work environment, building a positive mindset has become increasingly important. In this chapter, we will explore some potential future directions for cultivating a positive mindset in the workplace.
 

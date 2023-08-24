@@ -1,5 +1,3 @@
-Modeling positive behaviors
-==========================================================
 
 Leadership support is critical for promoting positivity and building a positive mindset in the workplace. One of the key ways that leaders can provide this support is by modeling positive behaviors. In this chapter, we will explore the importance of modeling positive behaviors and some strategies that leaders can use to do so effectively.
 

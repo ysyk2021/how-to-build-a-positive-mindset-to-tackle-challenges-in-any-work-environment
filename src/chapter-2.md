@@ -1,5 +1,3 @@
-Chapter 1: Defining Positive Mindset
-====================================
 
 Positive mindset is a way of thinking that focuses on the positive aspects of life and seeks to cultivate a more optimistic outlook. In this chapter, we'll explore what a positive mindset is, the benefits of cultivating a positive mindset, and examples of successful positive mindset strategies in practice.
 

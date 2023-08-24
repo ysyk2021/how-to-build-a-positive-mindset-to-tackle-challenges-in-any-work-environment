@@ -1,5 +1,3 @@
-Examples of Successful Positive Mindset Strategies in Practice
-====================================================================================================
 
 Positive mindset strategies can be implemented in various ways to achieve success in any work environment. In this chapter, we'll discuss examples of successful positive mindset strategies in practice.
 

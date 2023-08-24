@@ -1,5 +1,3 @@
-Overcoming barriers to effective implementation
-==========================================================================
 
 Implementing positive mindset strategies in the workplace can be challenging, and there may be barriers that prevent effective implementation. In this chapter, we will explore some common barriers to implementation and strategies for overcoming them.
 

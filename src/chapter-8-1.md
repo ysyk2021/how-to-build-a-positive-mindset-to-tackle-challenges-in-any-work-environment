@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Positive Mindset
-====================================================================================
 
 Leadership plays a crucial role in creating a positive work environment that supports a positive mindset. Leaders who prioritize their employees' well-being and mental health can foster a culture of positivity, trust, and productivity.
 

@@ -1,5 +1,3 @@
-Chapter 5: Prioritizing Self-Care
-=================================
 
 Prioritizing self-care is an essential component of developing a positive mindset in the workplace. In this chapter, we'll explore ways to promote physical and mental health, manage stress, and balance work and personal life.
 

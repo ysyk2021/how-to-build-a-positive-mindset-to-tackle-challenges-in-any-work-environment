@@ -1,5 +1,3 @@
-Incorporating positivity into daily routines
-=============================================================================================
 
 Incorporating gratitude and mindfulness practices into daily routines can help individuals develop a positive mindset and improve their overall well-being. In this chapter, we will explore how practicing gratitude and mindfulness can promote positivity in the workplace.
 

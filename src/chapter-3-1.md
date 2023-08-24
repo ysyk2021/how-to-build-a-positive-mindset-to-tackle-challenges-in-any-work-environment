@@ -1,5 +1,3 @@
-Understanding the Impact of Positive Mindset on Employee Well-Being
-=====================================================================================================================================
 
 A positive mindset can have a significant impact on employee well-being in any work environment. In this chapter, we'll discuss the various ways in which a positive mindset can benefit employee well-being.
 
