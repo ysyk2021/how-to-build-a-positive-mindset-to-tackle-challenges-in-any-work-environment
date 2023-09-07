@@ -10,3 +10,7 @@ In subsequent chapters, we will delve deeper into specific aspects of building a
 By the end of this book, readers will have gained a solid understanding of what a positive mindset is and how to cultivate it in their work environment. They will have learned practical strategies and techniques to build resilience, manage stress, and navigate challenges with confidence and optimism. Ultimately, this book aims to equip readers with the tools they need to thrive in any work environment and achieve their professional goals.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

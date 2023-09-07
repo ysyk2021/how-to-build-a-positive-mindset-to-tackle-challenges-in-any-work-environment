@@ -38,3 +38,4 @@
   - [Looking ahead to the future of a workforce with increased positive mindset](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
