@@ -1,5 +1,4 @@
-Chapter: Incorporating Positivity into Daily Routines
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating positivity into daily routines is a powerful way to build a positive mindset and effectively tackle challenges in any work environment. In this chapter, we explore strategies for infusing daily routines with positivity to enhance resilience, productivity, and overall well-being.
 

@@ -1,5 +1,4 @@
-Chapter: Innovations in Building a Positive Mindset in the Workplace
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore some innovative strategies that organizations can use to build a positive mindset in the workplace. As workplaces become more diverse and dynamic, it is essential to develop new approaches and techniques to foster positivity and well-being among employees.
 

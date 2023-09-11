@@ -1,5 +1,4 @@
-Chapter: Promoting Physical and Mental Health
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Maintaining good physical and mental health is essential for building a positive mindset and effectively tackling challenges in any work environment. In this chapter, we explore strategies for promoting physical and mental well-being to foster resilience, enhance productivity, and cultivate a thriving work environment.
 

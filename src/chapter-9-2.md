@@ -1,5 +1,4 @@
-Chapter: Addressing New Challenges in Promoting Positivity
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the new challenges organizations face in promoting positivity and building a positive mindset in the ever-evolving work environment. As workplaces continue to change, it is crucial to address these challenges effectively and adapt our strategies accordingly.
 

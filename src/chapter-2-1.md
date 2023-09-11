@@ -1,5 +1,4 @@
-Chapter: What is a Positive Mindset?
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive mindset serves as a powerful tool for individuals to effectively tackle challenges in any work environment. In this chapter, we explore the concept of a positive mindset, its characteristics, and its significance in personal and professional development.
 

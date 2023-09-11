@@ -1,5 +1,4 @@
-Chapter: The Risks to Employee Morale, Productivity, and Retention
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the risks that low employee morale can pose to productivity and retention in any work environment. We will explore the interconnected nature of these factors and discuss strategies for fostering a positive mindset to mitigate these risks.
 

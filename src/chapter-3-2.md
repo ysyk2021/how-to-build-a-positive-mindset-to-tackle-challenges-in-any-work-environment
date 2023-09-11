@@ -1,5 +1,4 @@
-Chapter: The Costs of Ignoring Positive Mindset
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant costs and negative implications that can arise from ignoring the importance of a positive mindset in the workplace. By overlooking or dismissing the significance of fostering a positive mindset, organizations risk hindering employee well-being, productivity, and overall success.
 

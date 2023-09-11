@@ -1,5 +1,4 @@
-Chapter: The Role of Leadership in Supporting a Positive Mindset
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of leadership in fostering a positive mindset within any work environment. Effective leaders understand the impact of mindset on individual and team performance and actively cultivate an environment that promotes positivity, resilience, and growth.
 

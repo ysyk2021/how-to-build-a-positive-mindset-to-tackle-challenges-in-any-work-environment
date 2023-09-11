@@ -1,5 +1,4 @@
-Chapter: The Benefits of a Positive Mindset
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come with developing and nurturing a positive mindset. Understanding the advantages of maintaining a positive outlook will inspire readers to actively cultivate this mindset in their own lives and work environments.
 

@@ -1,5 +1,4 @@
-Chapter: Understanding the Impact of Positive Mindset on Employee Well-being
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the profound impact that a positive mindset can have on employee well-being in any work environment. We will explore how cultivating a positive mindset can enhance mental health, improve job satisfaction, and contribute to a healthier work-life balance.
 

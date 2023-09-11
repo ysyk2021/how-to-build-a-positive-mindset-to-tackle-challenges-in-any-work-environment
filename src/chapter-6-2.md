@@ -1,5 +1,4 @@
-Chapter: Managing Stress
-========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced work environment, stress is an inevitable part of the job. However, learning how to manage stress effectively can help individuals cultivate a positive mindset and overcome challenges. In this chapter, we explore the significance of stress management and provide strategies for managing stress in any work environment.
 

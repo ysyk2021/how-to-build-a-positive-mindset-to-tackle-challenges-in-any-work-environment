@@ -1,5 +1,4 @@
-Chapter: Modeling Positive Behaviors
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of modeling positive behaviors and how it can contribute to building a positive mindset in any work environment. By acting as role models, individuals can inspire and influence others to adopt positive attitudes and behaviors, ultimately creating a culture of positivity within the organization.
 

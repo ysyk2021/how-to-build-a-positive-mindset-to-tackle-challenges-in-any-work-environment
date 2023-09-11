@@ -1,5 +1,4 @@
-Chapter: Cultivating a Growth Mindset Towards Challenges
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of a growth mindset and its importance in tackling challenges within any work environment. We will discuss strategies and techniques for cultivating a growth mindset, which empowers individuals to embrace challenges, learn from setbacks, and achieve personal and professional growth.
 

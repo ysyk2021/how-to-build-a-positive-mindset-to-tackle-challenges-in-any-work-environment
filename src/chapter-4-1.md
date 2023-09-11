@@ -1,5 +1,4 @@
-Chapter: Cultivating Gratitude as a Daily Habit
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating gratitude into daily life can have a significant impact on an individual's mindset, leading to increased positivity, resilience, and motivation. In this chapter, we explore the importance of cultivating gratitude as a daily habit and provide strategies for incorporating gratitude into everyday life in any work environment.
 

@@ -1,5 +1,4 @@
-Chapter: Examples of Successful Positive Mindset Strategies in Practice
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore real-life examples of individuals who have successfully applied positive mindset strategies to tackle challenges in various work environments. These examples demonstrate the effectiveness of positive thinking and provide inspiration for readers to adopt similar strategies in their own professional lives.
 

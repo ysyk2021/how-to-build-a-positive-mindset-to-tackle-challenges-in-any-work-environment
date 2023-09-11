@@ -1,5 +1,4 @@
-Chapter: Looking Ahead to the Future of a Workforce with Increased Positive Mindset
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the future of a workforce with an increased positive mindset and the potential impact it can have on individuals, organizations, and society as a whole. As we strive to build a positive work environment, it is essential to envision the possibilities and benefits of a workforce that embraces positivity.
 

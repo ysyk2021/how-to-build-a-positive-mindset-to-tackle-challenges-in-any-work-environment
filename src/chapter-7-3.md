@@ -1,5 +1,4 @@
-Chapter: Measuring the Effectiveness of Positive Mindset Strategies
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of measuring the effectiveness of positive mindset strategies in any work environment. We will discuss various methods and metrics that can be used to assess the impact of these strategies, allowing individuals and organizations to gauge progress and make informed adjustments.
 

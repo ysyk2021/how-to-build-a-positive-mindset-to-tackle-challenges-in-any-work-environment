@@ -1,5 +1,4 @@
-Chapter: Building Self-Confidence
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the topic of building self-confidence as an essential aspect of developing a positive mindset. We will explore practical strategies and techniques that individuals can employ to enhance their confidence levels in any work environment.
 
